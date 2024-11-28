@@ -8,7 +8,7 @@
  
                      ajithofficial123@gmail.com
                      
-                     www.linkedin.com/in/ajith-m-4521b4216
+                     www.linkedin.com/in/ajith-murthy
 
 
 
